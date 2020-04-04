@@ -1,5 +1,3 @@
 # HELLO-WRLD
 
-gonna try this again, i do not think i saved my work the 1st time
-by the way i live in michigan, enjoy pool, most sports, and have a great female
-boxer named pepper
+let me try this again.  i live in michigan, have a dog named pepper and enjoy a good game of 8 ball.
